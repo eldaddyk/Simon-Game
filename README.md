@@ -1,1 +1,1 @@
-Simon Hame
+Simon Game
